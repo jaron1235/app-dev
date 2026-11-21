@@ -35,12 +35,13 @@ Summer Pockets is a story follows a young man named Hairi Takahara who visits a 
 | Category | Detail |
 | ----------- | ----------- |
 | Series | Summer Pockets |
-| Genre | Romance, Mystery, Slice of Life |
+| Genre | Drama, Romance, Mystery, Slice of Life |
 | Setting | Torishirojima |
 | Personal Rating | 10/10 |
 
 ## More Information
 
 You can visit the official website (Visual Novel) at https://key.visualarts.gr.jp/summer/
-For the animne https://www.crunchyroll.com/series/G0XHWM17X/summer-pockets
+
+For the anime https://www.crunchyroll.com/series/G0XHWM17X/summer-pockets
 
